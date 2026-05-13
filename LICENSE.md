@@ -1,4 +1,4 @@
-# 
+# Enhance Camtasia for PC | Camtasia for Windows with premium Camtasia for PC | Camtasia for Windows Panel | LUT-support + transition-effects, the #1 panel. Includes LUT-support and
 
 
 
